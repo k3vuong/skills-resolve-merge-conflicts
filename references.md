@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+Get this KNITTER off the plane!
